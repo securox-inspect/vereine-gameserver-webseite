@@ -22,6 +22,8 @@
 
 </div>
 
+> 🇬🇧 **English:** Webseiten für Vereine & Gameserver – professional websites and online shops (custom service) by SecuroX Inspect. Purchase and licensing exclusively at [shop.inspect.wtf](https://shop.inspect.wtf). Product details below are in German – questions are welcome on [Discord](https://discord.gg/inspect).
+
 <br>
 
 ## Das Wichtigste auf einen Blick
